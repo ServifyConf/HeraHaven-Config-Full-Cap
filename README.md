@@ -1,5 +1,3 @@
-
-https://github.com/user-attachments/assets/3ace9168-40fb-4681-a78c-61fc65b2c1a4
 # HeraHaven-Config-Full-Cap
 🟪 HeraHaven Config 🟪 I 😈 AI 18+ Playground 😈 I🔥 FULL CAP 🔥 
 
